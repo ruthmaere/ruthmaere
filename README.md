@@ -1,6 +1,6 @@
 - 👋 Hi, I’m ruth
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning Infoemation Technology
+- 🌱 I’m currently learning Information Technology
 -
 - 📫 How to reach me ruthmaere@gmail.com
 -
